@@ -1,0 +1,1 @@
+# hasegawa.github.io
